@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tsezr-dostonbek
 - 👀 I’m interested in Economy
-- 🌱 I’m currently learning copywriting
+- 🌱 I’m currently working on my copywriting skill
 - 💞️ I’m looking to collaborate on B2B businesses 
 - 📫 How to reach me : By Telegram : @Dostonbekataxanov
 - 😄 Pronouns: Man
